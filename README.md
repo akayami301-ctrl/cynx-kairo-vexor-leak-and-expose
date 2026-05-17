@@ -13,7 +13,7 @@ THE BACKEND(RELOAD)
 MATCHMAKER(LAWIN)
 if you want the launcher (BIG TROJAN)mp Akayami2901
 
-i put everything, thank everyone to play iris now i dev on Lyric
+i put everything, Thanks for playing Iris, but I got tired of doing a Project Skid, that's why I'm leaving and going to Lyric.
 
 
 
