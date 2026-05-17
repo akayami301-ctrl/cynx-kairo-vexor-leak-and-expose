@@ -43,7 +43,15 @@ PROOF:
 <img width="466" height="183" alt="image" src="https://github.com/user-attachments/assets/bca6f37a-d306-41b0-b473-8c2340a02575" />
 
 Proof big trojan (i lost first part of the windows security)
+
+
+
+
 <img width="357" height="50" alt="{F8931F70-6182-4F3D-998C-F5DA26F07874}" src="https://github.com/user-attachments/assets/ddcc6f12-f2ff-45c3-9afe-1bbceee74439" />
+
+
+
+
 
 he say newer use this matchmaker but is in vps and files github
 
